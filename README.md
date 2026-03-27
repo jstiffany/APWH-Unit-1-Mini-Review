@@ -1,2 +1,2 @@
 # AP-World-History-Mini-Reviews
-Basics small APWORLD reviews because I need some side projects to do so my portfolio doesn't look dry.
+A genuine mini-review for AP World Unit 1 because I need a side project that will give my portfolio life!!!
